@@ -1,1 +1,1 @@
-# by tamer.kz
+study
